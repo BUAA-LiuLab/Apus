@@ -18,4 +18,4 @@
 
 # Contact us
 
-**Please send email to "pglycoquant[at]126.com" or "apus126[at]126.com" for more communications! (Please change "[at]" into "@".)**
+**Please send email to "apus126[at]126.com" or "redswift126[at]126.com" for more communications! (Please change "[at]" into "@".)**
